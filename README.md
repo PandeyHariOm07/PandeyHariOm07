@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **pandeyhariom71@gmail.com**
 
-- 📄 Know about my experiences [shorturl.at/DJLM3](shorturl.at/DJLM3)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1Y7wASKjwcC-qYB4HmRcMJbTIv4nTuSag/view)
 
 - ⚡ Fun fact **I Can Sing**
 
